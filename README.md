@@ -1,0 +1,2 @@
+# WI
+Zadanie na studia
